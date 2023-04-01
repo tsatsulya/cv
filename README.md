@@ -1,1 +1,1 @@
-# my two page resume
+# my resume
